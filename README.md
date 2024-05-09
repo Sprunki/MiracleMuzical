@@ -8,4 +8,5 @@
 
  hey...!!!! hihi haha read my strawpage
 
-![image](https://github.com/MiracleMuzical/MiracleMuzical/assets/153952641/072febc3-557c-41de-8c55-837fc93965f2)![image](https://github.com/MiracleMuzical/MiracleMuzical/assets/153952641/a4a6cef5-4a83-4543-9c1e-c2f85f176c0f)
+![image](https://github.com/MiracleMuzical/MiracleMuzical/assets/153952641/072febc3-557c-41de-8c55-837fc93965f2)![image](https://github.com/MiracleMuzical/MiracleMuzical/assets/153952641/a4a6cef5-4a83-4543-9c1e-c2f85f176c0f)![image](https://github.com/MiracleMuzical/MiracleMuzical/assets/153952641/145b9071-0e11-44d2-b81b-4856abcb7672)
+
