@@ -1,4 +1,5 @@
-![image](https://github.com/MiracleMuzical/MiracleMuzical/assets/153952641/ce38fc03-77a9-4dca-afee-d8cd0651d720)
+![image](https://github.com/MiracleMuzical/MiracleMuzical/assets/153952641/c1526250-8e9a-4132-9d21-bae2c0ec0600)
 
-
-                         ︶⊹︶︶୨୧︶︶⊹︶ Hello ... ^_^ ︶⊹︶︶୨୧︶︶⊹︶
+︶⊹︶︶୨୧︶︶⊹︶
+     HEY !! 
+︶⊹︶︶୨୧︶︶⊹︶
