@@ -8,9 +8,9 @@
 
 
 
- hey...!!!! hihi haha read my strawpage
+ hey...!!!! hihi haha read my strawpage :3 
 
-![image](https://github.com/MiracleMuzical/MiracleMuzical/assets/153952641/1108e1e6-c093-4277-9cee-e6a623762cff)![image](https://github.com/MiracleMuzical/MiracleMuzical/assets/153952641/29e6ee79-38de-44bc-87d6-d131e972132c)
+![image](https://github.com/MiracleMuzical/MiracleMuzical/assets/153952641/1108e1e6-c093-4277-9cee-e6a623762cff)
 
 
 
