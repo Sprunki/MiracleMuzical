@@ -1,4 +1,5 @@
-![image](https://github.com/MiracleMuzical/MiracleMuzical/assets/153952641/c1526250-8e9a-4132-9d21-bae2c0ec0600)
+          ![image](https://github.com/MiracleMuzical/MiracleMuzical/assets/153952641/cabfc100-0b45-410b-8b1a-c4ed251ec78c)
+
 
 ︶⊹︶︶୨୧︶︶⊹︶
      HEY !! 
