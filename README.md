@@ -1,6 +1,6 @@
 ![image](https://github.com/MiracleMuzical/MiracleMuzical/assets/153952641/dd134033-a20d-4a3c-90d6-40e706e02e5b)
 
-![image](https://github.com/MiracleMuzical/MiracleMuzical/assets/153952641/c063f637-e22e-4951-b008-268ae652917e)![image](https://github.com/MiracleMuzical/MiracleMuzical/assets/153952641/75ca9e73-a664-4f9e-9051-e5c0c63fca07)
+![image](https://github.com/MiracleMuzical/MiracleMuzical/assets/153952641/c063f637-e22e-4951-b008-268ae652917e) pew pew ![image](https://github.com/MiracleMuzical/MiracleMuzical/assets/153952641/75ca9e73-a664-4f9e-9051-e5c0c63fca07)
 
 
 
