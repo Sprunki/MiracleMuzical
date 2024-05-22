@@ -12,7 +12,7 @@
 
 
 
- hey...!!!! hihi haha read my strawpage :3 
+ Read my Rentry or ill fucking kill you /nsrs
 
 ![image](https://github.com/MiracleMuzical/MiracleMuzical/assets/153952641/1108e1e6-c093-4277-9cee-e6a623762cff)
 
